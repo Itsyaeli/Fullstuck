@@ -1,2 +1,2 @@
 # Fullstuck
-HomeworkS &amp; projects
+Homeworks &amp; projects
